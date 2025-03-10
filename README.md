@@ -1,1 +1,1 @@
-Este currículo não refelte a realidade
+Este currículo não reflete a realidade
